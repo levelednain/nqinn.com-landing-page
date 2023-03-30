@@ -1,1 +1,1 @@
-Code for my new website project
+i made this for fun
